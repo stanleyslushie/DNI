@@ -6,3 +6,7 @@ dni . . .
 → generative AI users / supporters
 
 → misandrists / misogynists
+
+→ endos
+
+→ proshippers
